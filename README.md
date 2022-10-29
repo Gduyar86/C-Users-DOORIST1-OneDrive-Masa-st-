@@ -1,0 +1,1 @@
+# C-Users-DOORIST1-OneDrive-Masa-st-
